@@ -1,4 +1,5 @@
-![download (1)](https://user-images.githubusercontent.com/69654750/91628553-3fec3680-e997-11ea-81bd-0dc5ca132527.png)
+![download (2)](https://user-images.githubusercontent.com/69654750/91628813-e0dbf100-e999-11ea-8688-3c3fdead28f4.png)
+
 # **Projeto_Integrado**
 
 * **MAISON RA - 1903196** :arrow_up_small:  
