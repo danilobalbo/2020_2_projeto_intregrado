@@ -1,3 +1,2 @@
 # 2020_2_projeto_intregrado  
-Rogerio RA1903318  
-Danilo RA1903317  
+Danilo Perrucini Balbo RA: 1903317  
